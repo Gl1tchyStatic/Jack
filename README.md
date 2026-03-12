@@ -11,3 +11,4 @@ Hello.
 
 <img src="Oc.png" width="300">
 
+i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
