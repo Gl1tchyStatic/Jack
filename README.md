@@ -9,6 +9,8 @@ Hello.
 ⠀⠀⠀
 𝐼 𝑙𝑜𝑣𝑒 𝑏𝑒𝑟𝑟𝑖𝑒𝑠.ℎ𝑒ℎ𝑒ℎ𝑒
 
-<img src="Oc.png" width="300">
+<img src="berries.png" width="300">
 
 i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
+
+uhh okay guys..fr..helpme
