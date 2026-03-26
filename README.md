@@ -1,5 +1,6 @@
+ᎻᎬᏞᏞϴ. 
 
-Hello.
+❢◥ ▬▬▬▬▬▬ ◆ ▬▬▬▬▬▬ ◤❢
 
 ᴄ+ʜ ғʀᴇᴇʟʏ ᴏɴ ᴘᴏɴʏ ᴛᴏᴡɴ
 <3
@@ -9,6 +10,9 @@ Hello.
 ⠀⠀⠀
 𝐼 𝑙𝑜𝑣𝑒 𝑏𝑒𝑟𝑟𝑖𝑒𝑠.ℎ𝑒ℎ𝑒ℎ𝑒
 
+┬┴┬┴┤┈┈┈┈┈┈┈┈├┬┴┬┴
+
+
 <img src="baking time with bro.png" width="300">
 
 i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
@@ -16,5 +20,5 @@ i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
 uhh okay guys..fr..helpme..
 
 NOT A COUPLE RELATIONSHIP..JUST BROTHERS,O-OKAY?!!
+▅▄▃▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▁▂▃▄▅
 
-<img src="https://raw.githubusercontent.com/username/my-images/main/baking time with bro.png">
