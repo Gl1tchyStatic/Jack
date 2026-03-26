@@ -13,4 +13,6 @@ Hello.
 
 i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
 
-uhh okay guys..fr..helpme
+uhh okay guys..fr..helpme..
+
+NOT A COUPLE RELATIONSHIP..JUST BROTHERS, OKAY!!? 
