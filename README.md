@@ -19,7 +19,7 @@ i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
 
 uhh okay guys..fr..helpme..
 
-NOT A COUPLE RELATIONSHIP..JUST BROTHERS,O-OKAY?! <img src="Nom.jpg" width="300">
+NOT A COUPLE RELATIONSHIP..JUST friend,O-OKAY?! <img src="Nom.jpg" width="300">
 
 
 ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
