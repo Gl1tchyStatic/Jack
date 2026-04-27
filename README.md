@@ -4,7 +4,7 @@
 ㅤ۪  𝅄ㅤ ꒰  美な  ꒱ ㅤsᴇᴄʀᴇᴛ  ⏤ㅤ  ۪
 
 
-<img src="baking time with bro.png" width="300">
+<img src="Dw oc.jpg" width="300">
 
 i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
 
