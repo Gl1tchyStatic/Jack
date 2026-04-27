@@ -1,16 +1,7 @@
-ᎻᎬᏞᏞϴ. 
+⠀☆゙      ۪    ʟᴏᴠᴇʟʏ    ࣪ ྀ      ࡛ <a:7a_meikodns:1340774982497730673> 𓂃
+⠀⠀<a:0_yum:1324625200024911884>  ⠀⠀⠀爱    ࿁ ⠀ ˚⠀    ︩︪ ׅɪᴅᴋ.⠀⠀ ೀ⠀ ⠀ꞌꞋ ࣪ <a:9_wings:1394088470808498176> 
 
-❢◥ ▬▬▬▬▬▬ ◆ ▬▬▬▬▬▬ ◤❢
-
-ᴄ+ʜ ғʀᴇᴇʟʏ ᴏɴ ᴘᴏɴʏ ᴛᴏᴡɴ
-<3
-ᴍᴜʟᴛɪғᴀɴᴅᴏᴍ
-⠀⠀⠀
-𝑭𝒓𝒊𝒆𝒏𝒅𝒍𝒚 𝒃𝒕𝒘,𝒊 𝒅𝒐𝒏'𝒕 𝒃𝒊𝒕𝒆 𝒖.𝒑𝒓𝒐𝒎𝒊𝒔𝒆 ;3
-⠀⠀⠀
-𝐼 𝑙𝑜𝑣𝑒 𝑏𝑒𝑟𝑟𝑖𝑒𝑠.ℎ𝑒ℎ𝑒ℎ𝑒
-
-┬┴┬┴┤┈┈┈┈┈┈┈┈├┬┴┬┴
+ㅤ۪  𝅄ㅤ ꒰  美な  ꒱ ㅤsᴇᴄʀᴇᴛ  ⏤ㅤ  ۪
 
 
 <img src="baking time with bro.png" width="300">
@@ -19,7 +10,6 @@ i always ship Oc x Canon,do not be mad at me. pls ??? *gelp*
 
 uhh okay guys..fr..helpme..
 
-NOT A COUPLE RELATIONSHIP..JUST friend,O-OKAY?! <img src="Nom.jpg" width="300">
+NOT A COUPLE RELATIONSHIP..JUST friend,O-OKAY?! <img src="dandys world oc 3d.png" width="300">
 
-
-─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
+#ᴍᴜʟᴛɪғᴀɴᴅᴏᴍs ʙᴜᴛ ɴᴏᴡ ɪ ʟᴜᴠ ᴅᴀɴᴅʏs ᴡᴏʀʟᴅ ғᴀɴᴅᴏᴍ....ᴅᴏɴ'ᴛ ᴡᴏʀʀʏ ɪ sᴛɪʟʟ ʟᴏᴠᴇ ᴍʏ ғᴀᴠᴏʀɪᴛᴇ ғᴀɴᴅᴏᴍs
